@@ -40,5 +40,5 @@ University of the Incarnate Word | Graduation: May 2020
 📫 Let’s Connect!
 
 	•	Email: javierfsaenzjr@gmail.com
-	•	LinkedIn: 
+	•	LinkedIn: www.linkedin.com/in/javierfsaenzjr
 	•	GitHub: You’re already here! 😊
